@@ -1,6 +1,6 @@
 #  Use BingX Referral Code "EYRFXI" for Exclusive Bonuses Up to $1000!
 
-Use MEXC Referral Code **“EYRFXI”** & Claim Up to $1000 in Bonuses!
+Use BingX Referral Code **“EYRFXI”** & Claim Up to $1000 in Bonuses!
 
 **❓New to Crypto? Confused About Where to Begin?**
 
@@ -24,13 +24,13 @@ What You Get	How It Helps
 
 🎁 Surprise Airdrops & Promotions	Be eligible for new-user-only giveaways and exclusive launches.
 
-🔗 Register here with the code: **https://www.mexc.com/register?inviteCode=1ZvUq**
+🔗 Register App
 
 Or manually enter code **“EYRFXI”** during signup.
 
 **🛠️ How to Use the Code – Step-by-Step**
 
-Go to the MEXC registration page
+Go to the BingXBingX registration page
 
 Sign up using email or phone number
 
@@ -40,11 +40,11 @@ Complete identity verification (KYC)
 
 Start trading and unlock your bonus offers
 
-Within minutes, you’ll have access to your account, your rewards, and the full features of the MEXC platform.
+Within minutes, you’ll have access to your account, your rewards, and the full features of the BingX platform.
 
-**🔍 Why MEXC?**
+**🔍 Why BingX**
 
-Let’s be real: there are a ton of crypto exchanges. So what makes MEXC special?
+Let’s be real: there are a ton of crypto exchanges. So what makes BingX special?
 
 🌐 1,600+ assets available — from major coins to hidden gems
 
@@ -56,7 +56,7 @@ Let’s be real: there are a ton of crypto exchanges. So what makes MEXC special
 
 🎯 Low fees, high liquidity, 24/7 support
 
-Whether you’re holding long-term or flipping tokens daily, MEXC gives you the tools to succeed.
+Whether you’re holding long-term or flipping tokens daily, BingXBingX gives you the tools to succeed.
 
 **🎯 Want to Earn Even More?**
 
@@ -78,4 +78,3 @@ You only get one chance to make a strong start.
 
 Signing up with the referral code **“EYRFXI”** isn’t just about a bonus — it’s about giving yourself the best foundation in crypto: lower fees, more rewards, and a platform that grows with you.
 
-🔗 Join Now: **https://www.mexc.com/register?inviteCode=1ZvUq**
